@@ -1,1 +1,2 @@
 # .github
+Minecraft, the sandbox game that has captivated millions worldwide, continues to evolve with its latest version: Minecraft 1.21. Packed with exciting new features, enhancements, and content, this update promises to enrich the gaming experience for its loyal community. In this article, we’ll delve into everything you need to know about Minecraft 1.21 APK for Android, its features, download process, and why it’s a must-have for fans.
